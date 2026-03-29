@@ -1,0 +1,1 @@
+# velora-coffee-shopify-store
